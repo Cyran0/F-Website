@@ -1,1 +1,1 @@
-# MotherFuckingWebsite
+# MotherFWebsite
